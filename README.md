@@ -1,0 +1,1 @@
+# BLUE-lock-rivals-script-
